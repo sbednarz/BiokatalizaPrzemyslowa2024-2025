@@ -1,1 +1,1 @@
-# BiokatalizaPrzemyslowa2025
+# Biokataliza Przemysłowa 2024/2025
